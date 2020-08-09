@@ -1,2 +1,0 @@
-# moktarkbnok
-cscscscscscscscsscs
